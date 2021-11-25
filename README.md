@@ -1,0 +1,5 @@
+-I’m @333-skier-999
+-I’m interested in skiing
+-I’m currently learning skiing
+-I’m looking to collaborate on nothing go away
+-How to reach me: by going away
